@@ -6,4 +6,4 @@
 - 🚀 Believe open source drives technology.
 - ✉️ Drop me a text on [jismailov@protonmail.com](mailto:jismailov@protonmail.com).
 
-**My CV: [Jaloliddin Ismailov]([https://www.overleaf.com/read/vxyqwknqjdrg#02ca3b]).**
+**My CV: [Jaloliddin Ismailov](https://www.overleaf.com/read/vxyqwknqjdrg#02ca3b).**
